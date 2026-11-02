@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi i am junior  👋
 
 <!--
 **naderamira186-png/naderamira186-png** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
